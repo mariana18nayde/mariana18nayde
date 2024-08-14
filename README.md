@@ -1,4 +1,5 @@
 
-- 🌱 I’m currently learning....
+- 🌱 “Acredite em si mesmo e tudo será possível.”
+
 
 
